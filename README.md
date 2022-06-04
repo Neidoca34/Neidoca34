@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Neidoca34
 - 👀 I’m interested in Learn to program
-- 🌱 I’m currently learning Cibernética security
+- 🌱 I’m currently learning Cyber security
 - - 💞️ I’m looking to collaborate on with technology
 - 📫 How to reach me.Aesy, here is my instagram @neide_torresdf
 
